@@ -19,12 +19,12 @@
 **생성형 호기심** /  최승준 [@choi.seungjoon](https://www.instagram.com/choi.seungjoon)  
 이국적 존재인 AI가 나를 더 잘 사용하게 만듦으로써 서로를 도야하는, 끈질긴 프롬프팅의 길을 소개합니다.
 
-### 발제글
+### ⊙ 발제글
 [\<Uneven Future 고르지 않은 미래\> 발제글](https://docs.google.com/document/d/1V198EvR40nRBON5dqwfngLrDg4YrRsr3H07Vhh4wJcc/edit?usp=sharing)
 
 
 
-### 행사 정보
+### ⊙ 행사 정보
 **⊔** 장소:   
 아케이드 서울 (서울 영등포구 도림로128길 23 1층)   
 [@arcade.seoul](https://www.instagram.com/arcade.seoul/)
